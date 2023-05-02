@@ -1,0 +1,1 @@
+com.inzgapps2store.luckyapppatchersmodtips_app4
